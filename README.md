@@ -6,8 +6,8 @@ while it's unclear what that amounts to
 and what we hold dear is bound to desert you
 because the day's cues are always made brand new
 
-revised lines to bullied actors
-thinking today, i'll please the director 
-but we're so wrong, he's the theater master
-cuz the grand plot, (is all that he's after)
-                    (is all that he cares for)
+wolf grey, rooting for uniforms //
+i look down and see i'm in one of em //
+sore throats from the pivotal third down //
+make room for defeat in your (battle) (contingent) plan //
+
